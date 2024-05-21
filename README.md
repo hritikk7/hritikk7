@@ -1,3 +1,6 @@
+
+![github-header-image (1)](https://github.com/hritikk7/hritikk7/assets/54003516/e64d92f2-a113-4e5b-81fe-236b64666311)
+
 ### Hi there 👋
 
 
